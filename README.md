@@ -3,6 +3,8 @@
 Nice to meet you all 
 My name is Valeria Catari Calderon ...
 I am 16 years old 
+I am a 5th-year student
 -->  I like chess
 walking in the rain
 a little bit of volleyball
+and i would love to learn fencing and futbol
